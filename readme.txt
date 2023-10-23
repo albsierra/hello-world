@@ -1,2 +1,2 @@
 Hola a todas!!!
-Venga. ¡¡Que es lunes!!
+Venga. ¡¡Que es casi viernes!!
